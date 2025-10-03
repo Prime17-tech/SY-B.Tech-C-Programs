@@ -1,1 +1,0 @@
-# SY-B.Tech-C-Programs
